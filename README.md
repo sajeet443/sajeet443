@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sajeet443
+- 👀 I’m interested in Interior/Architectural design and project management
+- 🌱 I’m currently learning LEED Certificate, PM Certificate and approaching for NCIDQ certification 
+- 📫 Please reach me @ ajeet.arch443@gmail.com
+- 😄 Pronouns: He/His
+- ⚡ Fun fact: A fun-loving designer who blends creativity with imagination to craft stunning spaces, loves sci-fi movies, and sports, and turns creativity into masterpieces!
